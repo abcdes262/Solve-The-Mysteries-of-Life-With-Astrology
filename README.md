@@ -1,0 +1,2 @@
+# Solve-The-Mysteries-of-Life-With-Astrology
+Astrology is not fortune telling. It is a study of influence that planets and stars have on human lives. It is a great tool for self discovery. Even if life looks so uncertain and series of meaningless events, astrology can make you believe that things happen for reason. Let’s see how astrology helps you deal with mysteries of life:   Astrology can warn you about upcoming challenges in your life. You can be well prepared to face these challenges.
